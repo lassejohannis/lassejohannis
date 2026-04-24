@@ -17,3 +17,4 @@ Business Informatics B.Sc. at the University of Mannheim (→ 06/2027). Working 
 ## Reach me
 
 [lasse.johannis@thinc.de](mailto:lasse.johannis@thinc.de) · [linkedin.com/in/lasse-johannis](https://linkedin.com/in/lasse-johannis)
+
