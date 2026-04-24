@@ -26,4 +26,4 @@ Training for my first marathon with strength work on the side. Teaching myself B
 
 ## Reach me
 
-[lasse.johannis@icloud.com](mailto:lasse.johannis@icloud.com) · [linkedin.com/in/lasse-johannis](https://linkedin.com/in/lasse-johannis)
+[lasse.johannis@thinc.de](mailto:lasse.johannis@thinc.de) · [linkedin.com/in/lasse-johannis](https://linkedin.com/in/lasse-johannis)
